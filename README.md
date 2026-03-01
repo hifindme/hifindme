@@ -3,7 +3,7 @@
 - I use VsCode, Pycharm
 - I like code geass.
 - 14 btw
-  
+
 ## Social 
 - Discord: `@hifindme` 
 - Tiktok: `@.x0tea`
