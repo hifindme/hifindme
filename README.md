@@ -5,7 +5,7 @@
 - 14 btw
 
 ## Social 
-- Discord: `@hifindme` 
+- Discord: `@especiallycc` 
 - Tiktok: `@.x0tea`
   
 ## Info 
